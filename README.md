@@ -1,0 +1,2 @@
+# spot
+Blogger Template
